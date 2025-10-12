@@ -1,2 +1,5 @@
-# Certification-
-Certificates portfolio 📜 • Verified course certificates &amp; achievements
+# 🎓 Certificates Repository
+
+A collection of my verified course certificates and achievements 🏆  
+
+⭐ *Learning never stops — this is just the beginning!* 🌟
